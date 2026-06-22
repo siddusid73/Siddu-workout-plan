@@ -1,1 +1,1 @@
-workout plan with themes and more
+Workout Plan with Themes and more
